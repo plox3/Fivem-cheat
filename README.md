@@ -1,6 +1,5 @@
 # Made by laewri
-Hello i leaked RZ-FREE because i want to join my discord for more source codes https://discord.gg/atikos
-
+Hello i leaked RZ-FREE because i want to join my discord for more source codes https://discord.gg/bearzmarket
 
 
 IF YOU WANT MORE SOURCE CODES JOIN MY DISCORD https://discord.gg/bearzmarket
